@@ -46,7 +46,7 @@
       exploring new things and places.
     </p>
     <p>
-      I am very dedicated and self motivated in addition to this In addition to
+      I am very dedicated and self motivated in addition to
       this I strive to perfect every task I take up.
     </p>
     <p>
